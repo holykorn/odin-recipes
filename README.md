@@ -1,1 +1,1 @@
-My learn project thans to Odin
+My learn project thanks to Odin!
